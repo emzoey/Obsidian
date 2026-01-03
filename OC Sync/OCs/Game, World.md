@@ -9,10 +9,36 @@ it would be interseting to incorporate something like that... you can't see this
 
 --- 
 
-![[Pasted image 20260102175845.png]] intersting concept from the dreambubble a6i3 game AGAIN. heres the page for ref: 
+![[Screenshot 2026-01-02 175842.png]] intersting concept from the dreambubble a6i3 game AGAIN. heres the page for ref: 
 https://www.homestuck.com/007208
+
+**TRANSCRIPTION**:
+`But since this place is made of secrets, you've had to be extra careful with your secrets. You've carved out an extensive network of virtual catacombs throughout the bubbles, leading to hidden treasures, black recollections, and perhaps one or two illicit dropoff points.`
 
 this could be for kiv or fifi maybe :D !!!!
 
 --- 
 
+more notes on how UNREALITY works again, with dream bubbles: 
+
+VRISKA: When it comes to solving a 8ig mystery like this, it doesn't hurt that everywhere we go, places are composed of **the collective memories** of many different adventurers. 
+VRISKA: We've explored ancient crypts, networks of 8urial mounds, dusty old tom8s, giant pyramids, you name it. **Hints** a8out the endgame are hidden all over the place.
+
+VRISKA: There's nothing static out there. No landmarks, no points of reference. Nothing! 
+VRISKA: If you want to make any headway in this gr8 8ig field of fuckall, SOMEONE has got to start wrecking some shit.
+
+VRISKA: Every time he destroys another dream 8u88le, he does a little more damage to the furthest ring, inexplica8ly **shattering the essence of all-encompassing nothingness.** 
+VRISKA: As the **cracks spread** across the void, new points of reference show up on our maps! VRISKA: Then we look at the angles and intersections and all the shapes formed 8y the cracks, and compare them to our notes from the various riddles and clues we've discovered a8out the path to the treasure. **THIS ABOUT RIFTS???? :D**
+
+continued; something something LETTING rifts open / tearing them open... 
+JOHN: that is pretty neat.
+JOHN: so does that mean you know where the treasure is now? 
+VRISKA: No, 8ecause the map isn't complete yet! 
+VRISKA: Needs **more cracks** so we can plot the rest of the course. All we're a8le to do now is head in the right general direction. 
+VRISKA: So ironically in order to **prevent reality** from 8eing destroyed, we need to w8 for it to 8e damaged further. In fact, we're 8etter off **encouraging it!**
+
+around pages https://www.homestuck.com/007296 
+
+how they're talking about lord english here could be an interesting spin on josie late game (how ppl wanna deal w her): https://www.homestuck.com/007296 
+
+--- 
