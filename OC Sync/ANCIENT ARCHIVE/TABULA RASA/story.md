@@ -1,0 +1,3 @@
+### Chimptown 2021 Conglomerate _—_ 23/12/2020 00:25
+
+wat da tws wld b lol (just for fun i wanna see how fucked this story is so far) - gore & injury - in depth descriptions of mental abuse, emotional abuse, and manipulation as well as the mental/physical consequences from it - death - fire - panic attacks/breakdowns - trans characters pre transition (if theres past kiv intermission) - allusions to trauma and past abuse - homelessness - disordered eating (overeating, hording) - isolation - gaslighting, guilt tripping - uncommon subtle allusions to sexual activity - in depth description of toxic relationships - past racism/classism - brief depictions of medical needles
