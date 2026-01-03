@@ -1,0 +1,4 @@
+i would like to play around with him having a more friendly role in the plot... so that his betrayals hit even harder. (see the interaction we wrote between him and josie? yes she's uncomfortable, but he's a nice, charismatic guy! their interaction flows nicely!). he's hiding information from you the whole time and feels fucking terrible about it but doesn't think he is able to do anything about his own terribleness, so he embraces it.
+
+--- 
+
