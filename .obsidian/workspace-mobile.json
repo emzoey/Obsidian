@@ -13,12 +13,12 @@
             "state": {
               "type": "markdown",
               "state": {
-                "file": "OC Sync/Welcome - GitTorial.md",
+                "file": "README.md",
                 "mode": "source",
                 "source": false
               },
               "icon": "lucide-file",
-              "title": "Welcome - GitTorial"
+              "title": "README"
             }
           }
         ]
@@ -112,7 +112,7 @@
         "state": {
           "type": "backlink",
           "state": {
-            "file": "OC Sync/Welcome - GitTorial.md",
+            "file": "README.md",
             "collapseAll": false,
             "extraContext": false,
             "sortOrder": "alphabetical",
@@ -170,14 +170,15 @@
   },
   "active": "7a67591953070b45",
   "lastOpenFiles": [
+    "OC Sync/OCs/Eli.md",
+    "OC Sync/OCs/Game/reworking ideas, mechanics.md",
+    "OC Sync/Welcome - GitTorial.md",
     "OC Sync/OCs/Kiv.md",
     "OC Sync/OCs/Josie.md",
     "OC Sync/OCs/Hunter.md",
-    "OC Sync/OCs/Game/reworking ideas, mechanics.md",
     "OC Sync/OCs/Game",
     "OC Sync/OCs/Game, World.md",
     "OC Sync/OCs/Fiona.md",
-    "OC Sync/OCs/Eli.md",
     "OC Sync/OCs"
   ]
 }
