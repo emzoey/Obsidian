@@ -52,4 +52,6 @@ new age, kiv is more of an antagonist-antagonist while fiona is softening on tha
 
 let's infuse her with dirk, aradia, and spoken for by flavor foley ,yes?
 
+really LEAN INTO her being similar to josie in the past.
+
 ---
