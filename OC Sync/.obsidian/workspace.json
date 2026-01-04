@@ -97,12 +97,12 @@
             "state": {
               "type": "markdown",
               "state": {
-                "file": "OCs/Kiv.md",
+                "file": "OCs/Fiona.md",
                 "mode": "source",
                 "source": false
               },
               "icon": "lucide-file",
-              "title": "Kiv"
+              "title": "Fiona"
             }
           }
         ],
@@ -281,6 +281,7 @@
   },
   "active": "814a4b557e2195cc",
   "lastOpenFiles": [
+    "OCs/Kiv.md",
     "ANCIENT ARCHIVE/TABULA RASA/Detcon.md",
     "ANCIENT ARCHIVE/TABULA RASA/Rolsia.md",
     "ANCIENT ARCHIVE/TABULA RASA/Ceru.md",
@@ -308,7 +309,6 @@
     "OCs/Eli.md",
     "OCs/Game/reworking ideas, mechanics.md",
     "OCs/Game",
-    "OCs/Kiv.md",
     "OCs/Josie.md",
     "Welcome - GitTorial.md",
     "Untitled.base"

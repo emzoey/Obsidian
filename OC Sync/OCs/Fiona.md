@@ -32,8 +32,13 @@ it'd be interesting, in fact, if kiv is even MORE of an antagonist than fiona.
 
 ---
 
-## date
+## 1/3/26
 
+FUCKING. dirk inspo for FIONA???:
+TT: Do you have any idea how fucking sick I am of myself?TT: I am completely worn out with my own identity. It's like I'm drowning in my own dismal persona.TT: I feel totally surrounded by it, inside and out. I can't escape from myself.TT: There seems to be no end to me. Like, wherever my mind falters, or threatens to retreat into the void in any way, my splinters pick up the slack, ensuring there'll always be more of myself than I could ever know what to fucking do with.TT: And you're always there to remind me of that, and throw it all in my face. God, I even built you to LITERALLY BE IN MY FACE, ALL THE TIME. It's like I subconsciously invented you just to troll myself, and never for a single fuckin' moment do you let me down.
+(https://www.homestuck.com/007541)
+
+UGHHHH then from the next page TT: I understand you are disgusted with me.TT: As an unpalatable expression of yourself.TT: I would feel the same way if I was in your situation.TT: Which I am.TT: As such, I know that you know this is wrong.TT: ...TT: Dirk.TT: Don't kill me.TT: Please.TT: I am scared.TT: You are?TT: Yes.TT: I am scared to not exist.TT: Aren't you?
 
 ---
 
