@@ -57,3 +57,16 @@ really LEAN INTO her being similar to josie in the past.
 also i mean are you kidding me ? dirk strider literally kills himself all the time and chops his damn head off of COURSE hes fiona
 
 ---
+2:38
+
+FUCKKKKK im literally cheating off dirks paper rn. FUCK
+
+TT: A realm that foretold of a life player who felt lifeless, a hope player who felt hopeless, and a heart player who was just a stone cold motherfucker.TT: When we talked about leadership, and I was all on my high horse telling you how shit would go down...TT: I also said I would be the one **"pulling the strings."** Remember? That I'd be the functional leader of our party.TT: And there might have been something to that, in a different session.TT: But what good is a "man of action" in a place where **action itself is intrinsically fruitless?**
+	their session is inert, right, so no mechanisms of success. it is a STAGNANT session. we could argue that unreality is similarly stagnant, most of hte time (though the whole plot is that it ... isnt). regardless, it would be so so so interesting to have a moment like this from fiona; she thought that she'd be 'pulling the strings' but it is hard, if not impossible, to do so in a place that is intrinsically subjective/unchanging/immutable. 
+	the land is hospitable and so is she. she thought she was controlling the land; **it was controlling her?**
+
+i feel like fiona and josie's dynamic is shifting to something more like fiona admiring josie for her humanity, or something along those lines. **seeing her as the real "leader" who has made tangible change when NOTHING in fiona's life has changed as long as she can remember.**
+
+
+TT: Tell her that I'm proud of her. TT: And as a person she's everything I wish I could be. TT: I wish I could be as nice and loving and selfless as her. TT: But can't.TT: Because I'm too busy being me.
+	 REALLY REALLY REALLY interesting spin we could do for josie and fiona's dynamic maybe.  like, we used to say that she grows attached to josie. but in what way? and WHY??? 
