@@ -54,4 +54,6 @@ let's infuse her with dirk, aradia, and spoken for by flavor foley ,yes?
 
 really LEAN INTO her being similar to josie in the past.
 
+also i mean are you kidding me ? dirk strider literally kills himself all the time and chops his damn head off of COURSE hes fiona
+
 ---
