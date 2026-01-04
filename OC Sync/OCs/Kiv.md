@@ -1,0 +1,1 @@
+1.3.26 you know what if dave strider can make progress + be more expressive, so can kiv. you know? theyve been fucked in similar ways for similar amounts of time
