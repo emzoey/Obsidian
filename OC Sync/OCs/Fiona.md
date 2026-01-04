@@ -42,6 +42,14 @@ UGHHHH then from the next page TT: I understand you are disgusted with me.TT: As
 
 ---
 
-## date 
+## 1/4/26 1:02am though
+
+so its kinda the same day
+
+looks like we are departing fiona station going to DIRK CITY  i repeat DIRK CITY how have we never eralized this???? all these machinations and manipulations and desperation and chess-playing and endless explortations and splinters of dreadful self!
+
+new age, kiv is more of an antagonist-antagonist while fiona is softening on that role a little, i think. so kinda flipping a bit. 
+
+let's infuse her with dirk, aradia, and spoken for by flavor foley ,yes?
 
 ---
