@@ -42,3 +42,6 @@ around pages https://www.homestuck.com/007296
 how they're talking about lord english here could be an interesting spin on josie late game (how ppl wanna deal w her): https://www.homestuck.com/007296 
 
 --- 
+
+1.5.26 4:35am
+at some point josie asks fiona wherher time passes here and fiona,  beijg so lost and far removed from physical reality, says no, bc igs easker for her to beliebe that. she also wants josie to see this place as a respite.  a future figment encoijter proves that wrong.
