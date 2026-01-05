@@ -32,6 +32,10 @@ it'd be interesting, in fact, if kiv is even MORE of an antagonist than fiona.
 
 ---
 
+## 1.4.26
+
+TT: It wasn't on purpose. Actually if I had a choice, I probably would have just said, fuck it. Sugar shock my brain, please.
+TT: Suffice to say, I have trouble escaping from myself. It's kind of a problem. Let's not talk about it though. Please continue
 ## 1/3/26
 
 FUCKING. dirk inspo for FIONA???:
