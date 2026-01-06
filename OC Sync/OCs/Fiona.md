@@ -74,3 +74,8 @@ i feel like fiona and josie's dynamic is shifting to something more like fiona a
 
 TT: Tell her that I'm proud of her. TT: And as a person she's everything I wish I could be. TT: I wish I could be as nice and loving and selfless as her. TT: But can't.TT: Because I'm too busy being me.
 	 REALLY REALLY REALLY interesting spin we could do for josie and fiona's dynamic maybe.  like, we used to say that she grows attached to josie. but in what way? and WHY??? 
+	 
+---
+
+## 1/5/26
+you can get stuck in a place nad not even realizei t. if youre note careful, you can get stuck there forever. -- the end of the fucking world

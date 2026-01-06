@@ -97,12 +97,12 @@
             "state": {
               "type": "markdown",
               "state": {
-                "file": "OCs/Kiv.md",
+                "file": "OCs/Fiona.md",
                 "mode": "source",
                 "source": false
               },
               "icon": "lucide-file",
-              "title": "Kiv"
+              "title": "Fiona"
             }
           }
         ],
@@ -281,8 +281,8 @@
   },
   "active": "814a4b557e2195cc",
   "lastOpenFiles": [
-    "OCs/Fiona.md",
     "OCs/Kiv.md",
+    "OCs/Fiona.md",
     "ANCIENT ARCHIVE/TABULA RASA/Detcon.md",
     "ANCIENT ARCHIVE/TABULA RASA/Rolsia.md",
     "ANCIENT ARCHIVE/TABULA RASA/Ceru.md",
