@@ -45,3 +45,13 @@ how they're talking about lord english here could be an interesting spin on josi
 
 1.5.26 4:35am
 at some point josie asks fiona wherher time passes here and fiona,  beijg so lost and far removed from physical reality, says no, bc igs easker for her to beliebe that. she also wants josie to see this place as a respite.  a future figment encoijter proves that wrong.
+
+---
+1.6.26
+
+	"You buy all these things, fridges and TVs. and these things promise to make you happy. But at some point, they all start breaking down. They become ticking time bombs."
+
+From a homestuck video (https://www.youtube.com/watch?v=QVN1u0L8qb8) 
+
+This could be a really interesting way to approach designing rooms and such!! Like seriously, take notes from how Homestuck does it: the FIRST thing you see is a character's cluttered room, and a block of text listing every. single. thing. they own. and this REALLY solidifies their characterization; and is impossible in any other medium (at least as directly with say flavor text). 
+	Think about what would be in everyones' rooms!! :)

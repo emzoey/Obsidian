@@ -97,12 +97,12 @@
             "state": {
               "type": "markdown",
               "state": {
-                "file": "OCs/Josie.md",
+                "file": "OCs/Game, World.md",
                 "mode": "source",
                 "source": false
               },
               "icon": "lucide-file",
-              "title": "Josie"
+              "title": "Game, World"
             }
           }
         ],
@@ -281,6 +281,7 @@
   },
   "active": "814a4b557e2195cc",
   "lastOpenFiles": [
+    "OCs/Josie.md",
     "get stuff for davesprite.md",
     "OCs/Fiona.md",
     "OCs/Kiv.md",
@@ -310,7 +311,6 @@
     "OCs/Eli.md",
     "OCs/Game/reworking ideas, mechanics.md",
     "OCs/Game",
-    "OCs/Josie.md",
     "Welcome - GitTorial.md",
     "Untitled.base"
   ]
