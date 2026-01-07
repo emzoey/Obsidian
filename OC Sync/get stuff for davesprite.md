@@ -1,6 +1,0 @@
-- keychain bit  / string thang. chain
-- orange felt
-- white felt
-- black ?? ?whatever
-- glue
-- uh. stuffing? idk.

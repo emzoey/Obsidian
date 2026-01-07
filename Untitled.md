@@ -1,4 +1,4 @@
-- [ ] drano
+- [x] drano
 - [ ] qtips
 - [ ] yeast
 - [ ] Orange fabric
@@ -14,10 +14,14 @@
 - [ ] ground beef
 - [ ] ground chicken
 - [ ] advil
-- [ ] bandaids
+- [x] bandaids
 - [ ] round brush / hair serum -- optional 
 - [ ] cottage cheese (4%, not daisy kind)
 - [ ] broc
 - [ ] veggies
 - [ ] carrots 
 - [ ] onion
+- [ ] macky cheese
+
+
+dave and dirk on music and dinosaurs
