@@ -4,14 +4,14 @@
 - [ ] Orange fabric
 - [ ] white fabric
 - [ ] keychain chain
-- [ ] bagels 
+- [x] bagels 
 - [ ] bread
 - [ ] sprite
 - [ ] cheese stick
-- [ ] OJ
+- [x] OJ
 - [ ] salmon
 - [ ] foil
-- [ ] ground beef
+- [x] ground beef
 - [ ] ground chicken
 - [ ] advil
 - [x] bandaids
@@ -21,7 +21,7 @@
 - [ ] veggies
 - [ ] carrots 
 - [ ] onion
-- [ ] macky cheese
+- [x] macky cheese
 
 
 dave and dirk on music and dinosaurs
