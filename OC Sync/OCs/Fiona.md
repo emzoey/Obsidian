@@ -131,3 +131,10 @@ Wave goodbye, wish me well
 I've become something else
 Something else, something else
 (Just as well, really)
+
+
+---
+
+1/8/26
+
+JOHN: yes.JOHN: and i kept randomly getting blurry and disappearing.JOHN: and now i think i'm sort of unstuck in existence.JOHN: like i'm not fully a part of reality anymore, or bound by the rules governing it.
