@@ -79,3 +79,12 @@ TT: Tell her that I'm proud of her. TT: And as a person she's everything I wish 
 
 ## 1/5/26
 you can get stuck in a place nad not even realizei t. if youre note careful, you can get stuck there forever. -- the end of the fucking world
+
+---
+
+
+1/7/26
+
+taking another page from dirk's book, what about fiona being a genuinely bad person irl and KNOWING it and turning to unreality instead.
+
+she doesn't think she can be saved, so she wants to save josie instead.
