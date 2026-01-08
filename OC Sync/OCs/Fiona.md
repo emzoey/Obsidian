@@ -88,3 +88,26 @@ you can get stuck in a place nad not even realizei t. if youre note careful, you
 taking another page from dirk's book, what about fiona being a genuinely bad person irl and KNOWING it and turning to unreality instead.
 
 she doesn't think she can be saved, so she wants to save josie instead.
+
+WAIT ERM THESE LYRICS FROM THE BECOMING BY NINE INCH NAILS? 
+
+I beat my machine
+It's a part of me, it's inside of me
+I'm stuck in this dream
+It's changing me, I am becoming
+
+The me that you know, he had some second thoughts
+He's covered with scabs, he is broken and sore
+The me that you know, he doesn't come around much
+That part of me isn't here anymore
+
+
+The me that you know, he used to have feelings
+But the blood has stopped pumping and he is left to decay
+The me that you know is now made up of wires
+And even when I'm right with you, I'm so far away
+
+I can try to get away, but I've strapped myself in
+I can try to scratch away the sound in my ears
+I can see it killing away all of my bad parts
+I don't want to listen, but it's all too clear
