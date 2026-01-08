@@ -47,6 +47,11 @@ how they're talking about lord english here could be an interesting spin on josi
 at some point josie asks fiona wherher time passes here and fiona,  beijg so lost and far removed from physical reality, says no, bc igs easker for her to beliebe that. she also wants josie to see this place as a respite.  a future figment encoijter proves that wrong.
 
 ---
+
+1/7/26
+
+what if being lost means melding with all the external perceptions of you as a person? being every version of yourself at once, not knowing whats truly you and whats not?
+OR, since that feels a lttle off track,  what if thats more what your physical half would show up as in unreality?
 1.6.26
 
 	"You buy all these things, fridges and TVs. and these things promise to make you happy. But at some point, they all start breaking down. They become ticking time bombs."
