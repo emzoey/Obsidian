@@ -111,3 +111,23 @@ I can try to get away, but I've strapped myself in
 I can try to scratch away the sound in my ears
 I can see it killing away all of my bad parts
 I don't want to listen, but it's all too clear
+
+
+Also this from "Everything" by NIN: 
+[Verse 1]
+I survived everything
+I have tried everything
+Everything, everything
+And anything
+
+[Chorus]
+All the walls begin to dissolve away
+Feel your hands begin to shake, to shake, to shake, to shake, to shake
+And just who you think you used to be
+All begins to bend and break, and break, and break, and break
+
+[Verse 2]
+Wave goodbye, wish me well
+I've become something else
+Something else, something else
+(Just as well, really)
