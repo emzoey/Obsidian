@@ -11,6 +11,7 @@ i enjoy organizing, scheduling, getting things done; i have been mildly interest
   
 
 how do new writers usually get staffed now?
+sending stuff out and ppl being like ud be good for this show
 
   
 
@@ -45,3 +46,11 @@ Why is Steve Ulrich pic in the White House?
 can i shadow you?
 
 what does producing look like? would that fit me? how could i get more experience in it? 
+- start antwhere and do everything bc producing is ab knowing how everything works realistically 
+
+send to who? 
+agent?
+
+how to navigste streaming services? which to go to for jobs?
+
+
