@@ -50,7 +50,10 @@ what does producing look like? would that fit me? how could i get more experienc
 
 send to who? 
 agent?
+absolutely get an agent
 
 how to navigste streaming services? which to go to for jobs?
+netflix and prime are best byt dont turn anything down
 
 
+ASK FOR SCRIPTS 
