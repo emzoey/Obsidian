@@ -60,3 +60,11 @@ From a homestuck video (https://www.youtube.com/watch?v=QVN1u0L8qb8)
 
 This could be a really interesting way to approach designing rooms and such!! Like seriously, take notes from how Homestuck does it: the FIRST thing you see is a character's cluttered room, and a block of text listing every. single. thing. they own. and this REALLY solidifies their characterization; and is impossible in any other medium (at least as directly with say flavor text). 
 	Think about what would be in everyones' rooms!! :)
+wveey item is a ticking bomb that will matter in some way.
+
+--- 
+
+1/10 1:55am
+title idea,  the world at large?
+
+ALSO THE VRISKA CRACKS THING LITERALLT WORKS. THE MORE RIFTS = MORE INFLUENCE ON REALITY = MORE TO EXPLORE AND LEARN IN UNREALITY + ABILITY TO "MAP OUT" CORRESPONDING REALITT LOCATIONS 

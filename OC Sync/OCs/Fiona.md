@@ -35,7 +35,7 @@ it'd be interesting, in fact, if kiv is even MORE of an antagonist than fiona.
 ## 1.4.26
 
 TT: It wasn't on purpose. Actually if I had a choice, I probably would have just said, fuck it. Sugar shock my brain, please.
-TT: Suffice to say, I have trouble escaping from myself. It's kind of a problem. Let's not talk about it though. Please continue
+TT: Suffice to say, I have trouble escaping from myself. It's kind of a problem. Let's not talk about it though. Please continue.
 ## 1/3/26
 
 FUCKING. dirk inspo for FIONA???:
@@ -138,3 +138,19 @@ Something else, something else
 1/8/26
 
 JOHN: yes.JOHN: and i kept randomly getting blurry and disappearing.JOHN: and now i think i'm sort of unstuck in existence.JOHN: like i'm not fully a part of reality anymore, or bound by the rules governing it.
+
+---
+
+1/10/26 1:53am
+The errors are vast. And all consuming.
+have fiona say this 
+
+WAIT FUUCKK readijg back on all this...
+if fiona has become one w unreality,  liek all her figments and splintees and shit r attached to it u know, open rkfts & reality's presence is  erasing her. shes like a spider being pulled into the bathtub drain, hoping praying begging she wont return to real-life. 
+
+every time she spreads herself about, makes a new figment whatever,  she is dividing snd diluting herself, whatever that means
+
+t also means that kiv can be fucken "*killing*" her if they can still break shit 
+
+
+ooh what if fiona was hanging out in josies apt unreality on day 0/1 cuz she could feel some weord disturbance/upheaval from all the loaded obnects josie moved in w and checksd ot out?????? idk
