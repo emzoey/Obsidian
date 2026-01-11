@@ -23,6 +23,8 @@
 - [x] onion
 - [x] macky cheese
 - [ ] pastina
+- [ ] vanilla extract
+- [ ] nasal spray
 
 CABBAGE ROLLS:
 - [ ] Rice
