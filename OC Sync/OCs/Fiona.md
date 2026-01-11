@@ -154,3 +154,44 @@ t also means that kiv can be fucken "*killing*" her if they can still break shit
 
 
 ooh what if fiona was hanging out in josies apt unreality on day 0/1 cuz she could feel some weord disturbance/upheaval from all the loaded obnects josie moved in w and checksd ot out?????? idk
+
+
+9:06pm
+from godfeels fic 
+
+June: I had exactly one pro8lem, which had exactly one solution, but that solution was somehow worse than the pro8lem???????? so I just sat there in the void never knowing what to do!  
+June: I sat there waiting for something to happen. more w8ing. hanging there like an unfinished thought just WAITING like I always do!  
+June: I still feel it, Jade.  
+June: every time I close my eyes, it's right there.  
+June: so no matter what I do, it's either fear or grief or pain.  
+June: how the fuck do I live with this, Jade?  
+June: why did this have to happen to me?
+
+
+another thing --
+
+V: What even is an important thing?
+
+V: Things are just mirrors.
+
+V: You see yourself in them and they 8ecome important.
+
+V: 8ut if you lose the mirror, do you lose your reflection?
+
+J: i don't know.
+
+J: i think if i looked in a mirror right now, i wouldn't see anything.
+
+J: why does this hurt so much?  
+  
+J: why is this all that i can remember?  
+  
+J: this can't be everything, can it?  
+  
+J: is this really who i am?  
+  
+J: is this... it?  
+  
+J: is this me?    
+  
+V: That's up to you.
