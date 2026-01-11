@@ -195,3 +195,23 @@ J: is this... it?
 J: is this me?    
   
 V: That's up to you.
+
+
+i would rather be dead than live as half myself. i would rather die than face another day as JOHN. that name is venom in my mouth, it curls my tongue, it makes me want to vomit until my insides are gone, and people like DIRK have the unmitigated fucking gall not to erase that name from their minds, to retcon it from their memory.
+
+i feel sick. every part of me is in pain. am i hurt? am i bleeding? why does my arm  
+  
+why does my stomach  
+  
+am i dying?  
+  
+no one should have this kind of power over anyone, but they do. they do, and they flaunt and abuse it every chance they get. they see me as a weakness they can exploit for their own gains. they see me as a broken thing they can threaten to fix to get me to do what they want.
+
+
+I was glad she was asleep, 8ecause I didn't remember her at first. everything was jum8led.  
+  
+it felt like I was piecing myself together again.  
+  
+the memory of me.  
+  
+the memory of everyone who wasn't me.
