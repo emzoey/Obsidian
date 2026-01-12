@@ -7,40 +7,40 @@
 - [x] bagels 
 - [ ] bread
 - [ ] sprite
-- [ ] cheese stick
+- [x] cheese stick
 - [x] OJ
-- [ ] salmon
-- [ ] foil
+- [x] salmon
+- [x] foil
 - [x] ground beef
 - [ ] ground chicken
-- [ ] advil
+- [x] advil
 - [x] bandaids
 - [ ] round brush / hair serum -- optional 
-- [ ] cottage cheese (4%, not daisy kind)
+- [x] cottage cheese (4%, not daisy kind)
 - [x] broc
 - [ ] veggies
 - [x] carrots 
 - [x] onion
 - [x] macky cheese
 - [ ] pastina
-- [ ] vanilla extract
-- [ ] nasal spray
+- [x] vanilla extract
+- [x] nasal spray
 
 CABBAGE ROLLS:
 - [ ] Rice
-- [ ] parsley
-- [ ] cabbage
+- [x] parsley
+- [x] cabbage
 - [ ] malic acid 
-- [ ] pork or beef
-- [ ] garlic onion carrots
-- [ ] tomato paste
+- [x] pork or beef
+- [x] garlic onion carrots
+- [x] tomato paste
 
 BORSCHT: 
 - [ ] beets
 - [ ] potatoes
 - [ ] saurkraut with brine
 - [ ] honey
-- [ ] tomato paste
+- [x] tomato paste
 - [ ] sunflower oil 
 - [ ] potatoes
 - [ ] dill
@@ -54,19 +54,19 @@ PIEROGI:
 - [ ] shallots
 
 GNUDI: 
-- [ ] Fresh spinach
-- [ ] ricotta
-- [ ] unsalted butter
+- [x] Fresh spinach
+- [x] ricotta
+- [x] unsalted butter
 - [ ] nutmeg
-- [ ] parmigiano reggiano
-- [ ] sage leaves
+- [x] parmigiano reggiano
+- [x] sage leaves
 
 ERBAZZONE:
-- [ ] lard
-- [ ] swiss chard / spinach 
-- [ ] panchetta
-- [ ] parmesan 
-- [ ] scallion
+- [x] lard
+- [x] swiss chard / spinach 
+- [x] panchetta
+- [x] parmesan 
+- [x] scallion
 
 
 dave and dirk on music and dinosaurs
