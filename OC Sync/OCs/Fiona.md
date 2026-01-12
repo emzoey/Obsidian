@@ -234,3 +234,6 @@ And then his ass DISINTEGRATES into the glitches and into the nothing.
 PUT THIS INTO FIONA!!!!
 she failed trying to save unreality!!! if her existence (as we know it) is tethered to unreality, she surely would too be damaged!!!!
 imagine having a million little creations and figments running around that are being messed with, sealed away, etc. and youre being PULLED APART. she would go crazy
+
+JOHN: he told me to leave him alone, so i did
+.JOHN: and now he's stuck somewhere inside all those shitty glitches, which just keep getting worse.
