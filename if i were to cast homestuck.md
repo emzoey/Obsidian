@@ -1,21 +1,28 @@
-JOHN - 
+JOHN - michael
 DAVE - zoey
-ROSE - laura? 
-JADE - 
+ROSE - laura
+JADE - wren
 
 DIRK - casey
-JANE - 
-ROXY -
+JANE - wren
+ROXY - laura
 JAKE - michael
 
 ARADIA - wren
-TAVROS -
-SOLLUX - 
+TAVROS - michael
+SOLLUX - casey
 KARKAT - michael
-NEPETA - 
-KANAYA - 
+NEPETA - wren
+KANAYA - zoey
+TEREZI - zoey
 VRISKA - laura
-EQUIUS - 
-GAMZEE - 
-ERIDAN - 
-FEFERI - 
+EQUIUS - whoever loses
+GAMZEE - casey
+ERIDAN - laura
+FEFERI - wren
+
+CALIBORN - 
+
+CALLIOPE- laura
+
+20 / 5 = 4 char per person
