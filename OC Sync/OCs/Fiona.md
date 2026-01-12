@@ -215,3 +215,22 @@ it felt like I was piecing myself together again.
 the memory of me.  
   
 the memory of everyone who wasn't me.
+
+---
+
+1/12/26
+
+UGUGUGUGHGHGHGHGHGHGH ok.
+
+https://www.homestuck.com/008856
+
+after S game over when everything is falling apart and glitching,
+John approaches Dirk.
+Dirk asks to be left alone. 
+John asks him if he knows what happened here; Dirk says he does.
+It's that he failed.
+And then his ass DISINTEGRATES into the glitches and into the nothing.
+
+PUT THIS INTO FIONA!!!!
+she failed trying to save unreality!!! if her existence (as we know it) is tethered to unreality, she surely would too be damaged!!!!
+imagine having a million little creations and figments running around that are being messed with, sealed away, etc. and youre being PULLED APART. she would go crazy
