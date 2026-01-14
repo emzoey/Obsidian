@@ -104,9 +104,21 @@
               "icon": "lucide-file",
               "title": "Fiona"
             }
+          },
+          {
+            "id": "af16677f67a2d0ec",
+            "type": "leaf",
+            "state": {
+              "type": "release-notes",
+              "state": {
+                "currentVersion": "1.11.4"
+              },
+              "icon": "lucide-book-up",
+              "title": "Release Notes 1.11.4"
+            }
           }
         ],
-        "currentTab": 6
+        "currentTab": 7
       }
     ],
     "direction": "vertical"
@@ -279,7 +291,7 @@
       "obsidian-git:Open Git source control": false
     }
   },
-  "active": "814a4b557e2195cc",
+  "active": "af16677f67a2d0ec",
   "lastOpenFiles": [
     "Welcome - GitTorial.md",
     "Screenshot 2026-01-02 175842.png",
