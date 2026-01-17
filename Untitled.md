@@ -25,6 +25,10 @@
 - [ ] pastina
 - [x] vanilla extract
 - [x] nasal spray
+- [ ] litter
+- [ ] brisket 
+- [ ] bulgogi
+- [ ] chicken
 
 CABBAGE ROLLS:
 - [ ] Rice
