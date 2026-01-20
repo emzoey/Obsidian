@@ -237,3 +237,9 @@ imagine having a million little creations and figments running around that are b
 
 JOHN: he told me to leave him alone, so i did
 .JOHN: and now he's stuck somewhere inside all those shitty glitches, which just keep getting worse.
+
+--- 
+
+# 1/17/2026
+
+JOHN: dang, this was such a cool moment!JOHN: hard to believe it was only...JOHN: hours ago?JOHN: days ago?JOHN: these zappy shenanigans are making me lose track of time.JOHN: whatever, it was just a really nice surprise when you all randomly appeared on my birthday and fell on the grass!
