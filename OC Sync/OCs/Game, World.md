@@ -68,3 +68,9 @@ wveey item is a ticking bomb that will matter in some way.
 title idea,  the world at large?
 
 ALSO THE VRISKA CRACKS THING LITERALLT WORKS. THE MORE RIFTS = MORE INFLUENCE ON REALITY = MORE TO EXPLORE AND LEARN IN UNREALITY + ABILITY TO "MAP OUT" CORRESPONDING REALITT LOCATIONS 
+
+---
+
+1/19 10:22pm
+
+ok, abilities that you cannot access bc they are locked behind a specific RS level or range will have the needed RS shown, even when they are currently unavailable, ONLY IF you have been at that level before. 
