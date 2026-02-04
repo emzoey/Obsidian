@@ -32,6 +32,7 @@ eli: void or light or heart. fuck
 - **page of heart**
 	- Pages of Heart start out with a deficit in Heart and try to overcompensate for it in their attempts to overcome it. So they try to act irrational and impulsive and going by their instincts, but they would either be way off on their instincts of they would follow the wrong impulses, or interpret them wrong.
 	- BUT a lot about trying to be compassionate, being too honest, etc
+- prince of light // blinded by aspeect and destroys it
 hunter: time or blood or life
 kiv: breath or blood or mind
 - **bard of blood:** passive destruction of connections/cooperation/stability
