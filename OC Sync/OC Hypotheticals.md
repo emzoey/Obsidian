@@ -25,4 +25,9 @@ fiona: heart or light or void or space
 eli: void or light or heart. fuck
 hunter: time or blood
 kiv: breath or blood or mind
-josie: rage or doom
+josie: rage or doom or life
+- **bard of life**: 
+	- Their challenge is to not be controlled by the whims of their aspect though and so they must eventually give up or run out of their craved thing and come to accept its absence once again. Maybe they come to terms with death, or sink back into submissive acceptance.
+	- They invite the destruction of any kind of luxury, temptation or optimism with their own overwhelming cautious pessimism and repulsion of ever breaking the rules and limits which guide them. They forgo and ignore any other options they have out of fear of reckless unrestriction. A Bard of Life’s crisis would be something like suddenly becoming overwhelmed with reckless temptation for something. They want and crave something so much that they break rules, sacrifice their friends and family, recklessly reaching for what they want
+	- They would have very submissive and cautious attitudes, even more so than usual for a Bard, and be extremely non-confrontational. They won’t argue with someone who tells them to do something, they would see it as necessary and quietly accept it. They live their lives fulfilling responsibilities and obligations and very strictly following the rules. They are very quiet and submissive, believing anything different than what they already do to be futile and not worth it. They either feel extremely limited or they place themselves under rules and limits to feel comfortable and safe.
+- rogue of rage?? 
