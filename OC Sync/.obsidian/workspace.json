@@ -123,12 +123,12 @@
             "state": {
               "type": "markdown",
               "state": {
-                "file": "OCs/Fiona.md",
+                "file": "OC Hypotheticals.md",
                 "mode": "source",
                 "source": false
               },
               "icon": "lucide-file",
-              "title": "Fiona"
+              "title": "OC Hypotheticals"
             }
           }
         ],
@@ -307,13 +307,15 @@
   },
   "active": "1ed8bbf0806d87e9",
   "lastOpenFiles": [
-    "OCs/Eli.md",
-    "OCs/Josie.md",
     "OCs/Fiona.md",
+    "josies.md",
+    "OCs/Eli.md",
     "OCs/Game, World.md",
+    "OCs/Hunter.md",
+    "OCs/Josie.md",
+    "OCs/Kiv.md",
     "OC Hypotheticals.md",
     "conflict-files-obsidian-git.md",
-    "OCs/Kiv.md",
     "OCs Recap (pre 2026).md",
     "Untitled.md",
     "Personal Universe.md",
@@ -340,7 +342,6 @@
     "ANCIENT ARCHIVE/THE NEW ERA",
     "ANCIENT ARCHIVE",
     "OCs/eli needs (but does not yet have).md",
-    "OCs/Hunter.md",
     "OCs/Game",
     "Untitled.base"
   ]

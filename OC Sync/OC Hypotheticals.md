@@ -13,3 +13,10 @@ and this one is less likely, but the other circumstance may be the rare instance
 # homestuck
 
 eli void and fiona light or flip flopped?? :D
+
+FIRST THOUGHTS:
+fiona: heart or light or void
+eli: void or light or heart. fuck
+hunter: time or blood
+kiv: breath or blood
+josie: rage or doom

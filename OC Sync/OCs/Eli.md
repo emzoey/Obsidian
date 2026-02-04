@@ -15,4 +15,4 @@ eli would prob interact w unraelity rly physically. like punching and shit cuz h
 
 # 2/3/2026
 
-isn't it interesting that [[Fiona]] and Eli are diametrically opposed in terms of truth/knowledge? like, fiona wants to find out EVERYTHING about herself while eli is trying his best to shut everything about himself OUT. theres something there. light and void. 
+isn't it interesting that [[Fiona]] and Eli are diametrically opposed in terms of truth/knowledge? like, [[fiona]] wants to find out EVERYTHING about herself while eli is trying his best to shut everything about himself OUT. theres something there. light and void. 

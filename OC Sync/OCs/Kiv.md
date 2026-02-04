@@ -12,4 +12,4 @@ we want kiv to be an antagonist? let's make kiv an ANTAGONIST.
 
 1/21/26
 
-what if KIV is the one opening rifts bc they want to escape? would also have a more direct struggle w fiona
+what if KIV is the one opening rifts bc they want to escape? would also have a more direct struggle w [[fiona]]

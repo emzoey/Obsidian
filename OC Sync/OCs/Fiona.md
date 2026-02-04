@@ -24,11 +24,11 @@ fiona is having her only safe space breached.
 
 she sees herself in [[josie]] and genuinely thinks that she is doing good for her.
 
-i believe we owe it to fiona to make her a much more sympathetic character. make her more central to the story --- a role similar to kiv's, the prevalency of a deuteragonist. 
+i believe we owe it to fiona to make her a much more sympathetic character. make her more central to the story --- a role similar to [[kiv]]'s, the prevalency of a deuteragonist. 
 and i think she deserves a happy ending too. 
 
-i think we need the narrative to recognize her as the sad character she is! just like we do kiv! just like we do kiv. 
-it'd be interesting, in fact, if kiv is even MORE of an antagonist than fiona. 
+i think we need the narrative to recognize her as the sad character she is! just like we do [[kiv]]! just like we do [[kiv]]. 
+it'd be interesting, in fact, if [[kiv]] is even MORE of an antagonist than fiona. 
 
 ---
 
@@ -52,11 +52,11 @@ so its kinda the same day
 
 looks like we are departing fiona station going to DIRK CITY  i repeat DIRK CITY how have we never eralized this???? all these machinations and manipulations and desperation and chess-playing and endless explortations and splinters of dreadful self!
 
-new age, kiv is more of an antagonist-antagonist while fiona is softening on that role a little, i think. so kinda flipping a bit. 
+new age, [[kiv]] is more of an antagonist-antagonist while fiona is softening on that role a little, i think. so kinda flipping a bit. 
 
 let's infuse her with dirk, aradia, and spoken for by flavor foley ,yes?
 
-really LEAN INTO her being similar to josie in the past.
+really LEAN INTO her being similar to [[josie]] in the past.
 
 also i mean are you kidding me ? dirk strider literally kills himself all the time and chops his damn head off of COURSE hes fiona
 
@@ -69,11 +69,11 @@ TT: A realm that foretold of a life player who felt lifeless, a hope player who 
 	their session is inert, right, so no mechanisms of success. it is a STAGNANT session. we could argue that unreality is similarly stagnant, most of hte time (though the whole plot is that it ... isnt). regardless, it would be so so so interesting to have a moment like this from fiona; she thought that she'd be 'pulling the strings' but it is hard, if not impossible, to do so in a place that is intrinsically subjective/unchanging/immutable. 
 	the land is hospitable and so is she. she thought she was controlling the land; **it was controlling her?**
 
-i feel like fiona and josie's dynamic is shifting to something more like fiona admiring josie for her humanity, or something along those lines. **seeing her as the real "leader" who has made tangible change when NOTHING in fiona's life has changed as long as she can remember.**
+i feel like fiona and [[josie]]'s dynamic is shifting to something more like fiona admiring [[josie]] for her humanity, or something along those lines. **seeing her as the real "leader" who has made tangible change when NOTHING in fiona's life has changed as long as she can remember.**
 
 
 TT: Tell her that I'm proud of her. TT: And as a person she's everything I wish I could be. TT: I wish I could be as nice and loving and selfless as her. TT: But can't.TT: Because I'm too busy being me.
-	 REALLY REALLY REALLY interesting spin we could do for josie and fiona's dynamic maybe.  like, we used to say that she grows attached to josie. but in what way? and WHY??? 
+	 REALLY REALLY REALLY interesting spin we could do for [[josie]] and fiona's dynamic maybe.  like, we used to say that she grows attached to [[josie]]. but in what way? and WHY??? 
 	 
 ---
 
@@ -87,7 +87,7 @@ you can get stuck in a place nad not even realizei t. if youre note careful, you
 
 taking another page from dirk's book, what about fiona being a genuinely bad person irl and KNOWING it and turning to unreality instead.
 
-she doesn't think she can be saved, so she wants to save josie instead.
+she doesn't think she can be saved, so she wants to save [[josie]] instead.
 
 WAIT ERM THESE LYRICS FROM THE BECOMING BY NINE INCH NAILS? 
 
@@ -150,10 +150,10 @@ if fiona has become one w unreality,  liek all her figments and splintees and sh
 
 every time she spreads herself about, makes a new figment whatever,  she is dividing snd diluting herself, whatever that means
 
-t also means that kiv can be fucken "*killing*" her if they can still break shit 
+t also means that [[kiv]] can be fucken "*killing*" her if they can still break shit 
 
 
-ooh what if fiona was hanging out in josies apt unreality on day 0/1 cuz she could feel some weord disturbance/upheaval from all the loaded obnects josie moved in w and checksd ot out?????? idk
+ooh what if fiona was hanging out in [[josie]]s apt unreality on day 0/1 cuz she could feel some weord disturbance/upheaval from all the loaded obnects [[josie]] moved in w and checksd ot out?????? idk
 
 
 9:06pm
@@ -248,4 +248,4 @@ JOHN: dang, this was such a cool moment!JOHN: hard to believe it was only...JOHN
 
 # 2/3/2026
 
-isn't it interesting that Fiona and Eli are diametrically opposed in terms of truth/knowledge? like, fiona wants to find out EVERYTHING about herself while eli is trying his best to shut everything about himself OUT. theres something there. light and void. 
+isn't it interesting that Fiona and [[Eli]] are diametrically opposed in terms of truth/knowledge? like, fiona wants to find out EVERYTHING about herself while [[eli]] is trying his best to shut everything about himself OUT. theres something there. light and void. 
