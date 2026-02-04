@@ -28,12 +28,16 @@ fiona: heart or light or void or space
 - HEART ASPECT OMG: Those bound to the aspect of Heart are very concerned with their favorite subject: themselves. It wouldn't be a stretch to call them 'self-obsessed', but not necessarily in a negative way. They simply want to understand the one thing we all are stuck with for our entire lives, i.e. our own minds. Forging an identity is extremely important to the Heart-bound, and every decision and action goes toward building a coherent narrative of their own story. That isn't to say Heart-bound don't care deeply for their friends and allies; they just have a tendency to assume that everyone is as concerned with identity as they are. They are excellent at putting on and taking off masks as the situation calls for them. At their best, they are competent, imaginative, and steady. At their worst they can be overbearing, inflexible, and cold.
 - **maid of heart**? a lack of self/passion in their life (memory) so they create their own (figments + manipulation) 
 - ok so fiona LACKS in Heart (seeing her own self, seeing other peoples') and is desperately trying to overcompensate for it -- manipulating others, ceaselessly investigating herself. she "creates" heart by splintering herself like dirk?? 
+- knight of heart; exploits others' selves to protect unreality, which is connected to heart. is insufficient in heart.
+- 
 eli: void or light or heart. fuck
 - **page of heart**
 	- Pages of Heart start out with a deficit in Heart and try to overcompensate for it in their attempts to overcome it. So they try to act irrational and impulsive and going by their instincts, but they would either be way off on their instincts of they would follow the wrong impulses, or interpret them wrong.
 	- BUT a lot about trying to be compassionate, being too honest, etc
 - prince of light // blinded by aspeect and destroys it. doesnt investigate his toxic tendencies n continues to destroy good things. wants to be dumb and irrelevant. withholding so much info.  knows how shit works n tells no one. refuses to learn from his actions
+- prince of mind??
 hunter: time or blood or life
+- mage of time: knows deeply from experience and can suffer from time; death, endings,  movement, time passing. pretty cut and dry no?
 kiv: breath or blood or mind
 - **bard of blood:** passive destruction of connections/cooperation/stability
 	- we already know this, but interesting add'n: Their challenge though is not to be ruled by the whims of their Aspect, but rather to come out of it with a healthy respect and understanding of it. A Bard of Blood that has risen to and came through their challenge will not take their bonds and loyalty, those connected to them, for granted ever again.
@@ -43,3 +47,35 @@ josie: rage or doom or life or hope
 	- They invite the destruction of any kind of luxury, temptation or optimism with their own overwhelming cautious pessimism and repulsion of ever breaking the rules and limits which guide them. They forgo and ignore any other options they have out of fear of reckless unrestriction. A Bard of Life’s crisis would be something like suddenly becoming overwhelmed with reckless temptation for something. They want and crave something so much that they break rules, sacrifice their friends and family, recklessly reaching for what they want
 	- They would have very submissive and cautious attitudes, even more so than usual for a Bard, and be extremely non-confrontational. They won’t argue with someone who tells them to do something, they would see it as necessary and quietly accept it. They live their lives fulfilling responsibilities and obligations and very strictly following the rules. They are very quiet and submissive, believing anything different than what they already do to be futile and not worth it. They either feel extremely limited or they place themselves under rules and limits to feel comfortable and safe.
 - rogue of rage?? 
+
+
+
+MY UNDERSTANDING 
+Light: knowledge, luck, ambition, loopholes
+Void: obscurity, lacking, secrets, depth
+Heart: identity, desires, soul
+Blood: stability, connections, leadership, stubborn, trust
+Time: preservation, death, entropy, action/stagnation, repetition/patterns,  multipilicity
+Space: creation/propagation, patience, unity
+Rage: truth, nuance, injustice, transition
+Hope: ideals, faith, manifestation, influence
+Doom: limits, endings, inevitability
+Life: indignation, survival, power, change
+Breath: freedom, unbound, independence 
+Mind: causality, potential, observant, impersonal, rationality
+
+knight - wields/exploits aspect despite perceived insufficiency
+page - starts off as misguidedly confident when actually insufficient; grows to truly embody aspect
+bard - passively destroys/destroys through 
+prince - tormented by and destroyer of aspect
+maid - grows into and maintains 
+sylph - inserts aspect where lacking
+
+
+fiona lacks identity and attempts to make up for that lack via picking herself and others apart -- something heart or mind
+
+eli lacks identity and avoids that truth by being socially infallible, acting dumb/oblivious, and refusing to change -- erm idk man void.? rage? 
+prince of light: is tormented by knowledge, luck, and ambition; destroys knowledge, luck, and ambition 
+someone who knows  lotta things they dont want to and escape unscatched, reach for ambitions that are destroying them, purposefully obsfucate/skew others' luck, access to knowledge
+is tormented by their relevance and seeks to destroy it / is destroyed by their relevance, knowledge,  luck, ambition; & destroys it in others 
+
