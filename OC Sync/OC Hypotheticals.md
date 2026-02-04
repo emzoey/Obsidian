@@ -23,8 +23,10 @@ fiona: heart or light or void or space
 	- They would like pull strings from the background and exploit what other people either can’t comprehend or just simply ignore.
 - **knight of light**: fears personal lack of knowledge/luck/light?
 eli: void or light or heart. fuck
-hunter: time or blood
+hunter: time or blood or life
 kiv: breath or blood or mind
+- **bard of blood:** passive destruction of connections/cooperation/stability
+	- we already know this, but interesting add'n: Their challenge though is not to be ruled by the whims of their Aspect, but rather to come out of it with a healthy respect and understanding of it. A Bard of Blood that has risen to and came through their challenge will not take their bonds and loyalty, those connected to them, for granted ever again.
 josie: rage or doom or life
 - **bard of life**: 
 	- Their challenge is to not be controlled by the whims of their aspect though and so they must eventually give up or run out of their craved thing and come to accept its absence once again. Maybe they come to terms with death, or sink back into submissive acceptance.
