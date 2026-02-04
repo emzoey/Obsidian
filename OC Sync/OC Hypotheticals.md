@@ -25,6 +25,9 @@ fiona: heart or light or void or space
 	- too moral for her but worth a look
 - **knight of light**: fears personal lack of knowledge/luck/light?
 eli: void or light or heart. fuck
+- **page of heart**
+	- Pages of Heart start out with a deficit in Heart and try to overcompensate for it in their attempts to overcome it. So they try to act irrational and impulsive and going by their instincts, but they would either be way off on their instincts of they would follow the wrong impulses, or interpret them wrong.
+	- BUT a lot about trying to be compassionate, being too honest, etc
 hunter: time or blood or life
 kiv: breath or blood or mind
 - **bard of blood:** passive destruction of connections/cooperation/stability
