@@ -24,6 +24,7 @@ fiona: heart or light or void or space
 - **sylph of heart:**
 	- too moral for her but worth a look
 - **knight of light**: fears personal lack of knowledge/luck/light?
+- HEART ASPECT OMG: Those bound to the aspect of Heart are very concerned with their favorite subject: themselves. It wouldn't be a stretch to call them 'self-obsessed', but not necessarily in a negative way. They simply want to understand the one thing we all are stuck with for our entire lives, i.e. our own minds. Forging an identity is extremely important to the Heart-bound, and every decision and action goes toward building a coherent narrative of their own story. That isn't to say Heart-bound don't care deeply for their friends and allies; they just have a tendency to assume that everyone is as concerned with identity as they are. They are excellent at putting on and taking off masks as the situation calls for them. At their best, they are competent, imaginative, and steady. At their worst they can be overbearing, inflexible, and cold.
 eli: void or light or heart. fuck
 - **page of heart**
 	- Pages of Heart start out with a deficit in Heart and try to overcompensate for it in their attempts to overcome it. So they try to act irrational and impulsive and going by their instincts, but they would either be way off on their instincts of they would follow the wrong impulses, or interpret them wrong.
@@ -32,7 +33,7 @@ hunter: time or blood or life
 kiv: breath or blood or mind
 - **bard of blood:** passive destruction of connections/cooperation/stability
 	- we already know this, but interesting add'n: Their challenge though is not to be ruled by the whims of their Aspect, but rather to come out of it with a healthy respect and understanding of it. A Bard of Blood that has risen to and came through their challenge will not take their bonds and loyalty, those connected to them, for granted ever again.
-josie: rage or doom or life
+josie: rage or doom or life or hope
 - **bard of life**: 
 	- Their challenge is to not be controlled by the whims of their aspect though and so they must eventually give up or run out of their craved thing and come to accept its absence once again. Maybe they come to terms with death, or sink back into submissive acceptance.
 	- They invite the destruction of any kind of luxury, temptation or optimism with their own overwhelming cautious pessimism and repulsion of ever breaking the rules and limits which guide them. They forgo and ignore any other options they have out of fear of reckless unrestriction. A Bard of Life’s crisis would be something like suddenly becoming overwhelmed with reckless temptation for something. They want and crave something so much that they break rules, sacrifice their friends and family, recklessly reaching for what they want
