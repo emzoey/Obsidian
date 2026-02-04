@@ -16,13 +16,13 @@ fiona is to unreality as aradia is to dream bubbles :D
 
 ---
 
-when josie first appears in unreality, fiona really sells it as JOSIE'S little pocket world. fiona is just a guide. it is dubious whether she is even real; she may just be a figment of josie's imagination! an imaginary friend! 
-fiona wants josie to believe this (just as fiona once believed herself; that this was her own little mind palace, until she learned it was not, and it blanketed everything we know). i think she wants josie here because she is lonely. she has not connected with the world, with other people, in so long. 
+when [[josie]] first appears in unreality, fiona really sells it as [[JOSIE]]'S little pocket world. fiona is just a guide. it is dubious whether she is even real; she may just be a figment of josie's imagination! an imaginary friend! 
+fiona wants [[josie]] to believe this (just as fiona once believed herself; that this was her own little mind palace, until she learned it was not, and it blanketed everything we know). i think she wants josie here because she is lonely. she has not connected with the world, with other people, in so long. 
 so it'd make sense that she panics a bit when she realizes that there's another guy here. 
-maybe what fiona is slowly learning is that this truly never WAS her world. she has seen eli and kiv in the past, but brushed them off as figments, perhaps, denying them of the humanity that she now has to look in the face. 
+maybe what fiona is slowly learning is that this truly never WAS her world. she has seen [[eli]] and [[kiv]] in the past, but brushed them off as figments, perhaps, denying them of the humanity that she now has to look in the face. 
 fiona is having her only safe space breached.
 
-she sees herself in josie and genuinely thinks that she is doing good for her.
+she sees herself in [[josie]] and genuinely thinks that she is doing good for her.
 
 i believe we owe it to fiona to make her a much more sympathetic character. make her more central to the story --- a role similar to kiv's, the prevalency of a deuteragonist. 
 and i think she deserves a happy ending too. 
@@ -243,3 +243,9 @@ JOHN: he told me to leave him alone, so i did
 # 1/17/2026
 
 JOHN: dang, this was such a cool moment!JOHN: hard to believe it was only...JOHN: hours ago?JOHN: days ago?JOHN: these zappy shenanigans are making me lose track of time.JOHN: whatever, it was just a really nice surprise when you all randomly appeared on my birthday and fell on the grass!
+
+---
+
+# 2/3/2026
+
+isn't it interesting that Fiona and Eli are diametrically opposed in terms of truth/knowledge? like, fiona wants to find out EVERYTHING about herself while eli is trying his best to shut everything about himself OUT. theres something there. light and void. 

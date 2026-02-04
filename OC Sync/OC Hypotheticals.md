@@ -8,3 +8,8 @@ Fiona: easier than youd think but not as easy as h/j. she compartmentalizes thin
 
 kiv: in the form theyre in now, i think crying is rare. we know this. if they were to cry, itd be after a near miss; being sat shellshocked and raw after just so nearly failing or dying or getting injured and just sitting with it. thats when they can cry. like if they were about to get attacked by a bear and it was about to strike, but was suddenly vaporized, and theyre just sitting there.
 and this one is less likely, but the other circumstance may be the rare instance where they get too far into their self-loathing; they would cry, vitriolic, at themselves, how much they hate themselves and their life, knowing that they're so fucked and hopeless and they wish they weren't trans. cry o hate.
+
+
+# homestuck
+
+eli void and fiona light or flip flopped?? :D
