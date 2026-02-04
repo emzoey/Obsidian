@@ -21,6 +21,8 @@ fiona: heart or light or void or space
 	- They can exploit a person’s secrets to either be used against them or exploit how people can sometimes disregard certain things or view them as unimportant. They might worry about whether or not something is truly meaningless or irrelevant. Sometimes they might even wonder if they themselves are truly irrelevant or unimportant in the grand scheme of things.
 	- A Knight of Void will struggle finding out what exactly it is they are good at, but once they know what that thing is, nothing can stop them.
 	- They would like pull strings from the background and exploit what other people either can’t comprehend or just simply ignore.
+- **sylph of heart:**
+	- too moral for her but worth a look
 - **knight of light**: fears personal lack of knowledge/luck/light?
 eli: void or light or heart. fuck
 hunter: time or blood or life
