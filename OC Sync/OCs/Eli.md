@@ -3,3 +3,10 @@ i would like to play around with him having a more friendly role in the plot... 
 --- 
 
 btw the interaction is referring to the 2025 Christmas oc crossover, twas the night before ocmas
+
+
+--- 
+
+1/21/26
+
+eli would prob interact w unraelity rly physically. like punching and shit cuz hes stressed. what if part of him begins becoming less real
