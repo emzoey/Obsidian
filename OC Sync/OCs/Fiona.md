@@ -249,3 +249,9 @@ JOHN: dang, this was such a cool moment!JOHN: hard to believe it was only...JOHN
 # 2/3/2026
 
 isn't it interesting that Fiona and [[Eli]] are diametrically opposed in terms of truth/knowledge? like, fiona wants to find out EVERYTHING about herself while [[eli]] is trying his best to shut everything about himself OUT. theres something there. light and void. 
+
+---
+
+2/4/26
+
+DUDE HOLY FREAKING AUSTIN ATLANTIS UM U FIGHT FIONA LIKE A FIGMENT WHEN SHE STARTS BREAKING APART. WHATEVER THA MEWNAS

@@ -123,12 +123,12 @@
             "state": {
               "type": "markdown",
               "state": {
-                "file": "OC Hypotheticals.md",
+                "file": "OCs/Fiona.md",
                 "mode": "source",
                 "source": false
               },
               "icon": "lucide-file",
-              "title": "OC Hypotheticals"
+              "title": "Fiona"
             }
           }
         ],
@@ -307,8 +307,8 @@
   },
   "active": "1ed8bbf0806d87e9",
   "lastOpenFiles": [
-    "OCs/2014 Refs.md",
     "OC Hypotheticals.md",
+    "OCs/2014 Refs.md",
     "OCs/Game, World.md",
     "OCs/Fiona.md",
     "josies.md",
