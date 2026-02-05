@@ -35,6 +35,16 @@ eli: void or light or heart. fuck
 	- Pages of Heart start out with a deficit in Heart and try to overcompensate for it in their attempts to overcome it. So they try to act irrational and impulsive and going by their instincts, but they would either be way off on their instincts of they would follow the wrong impulses, or interpret them wrong.
 	- BUT a lot about trying to be compassionate, being too honest, etc
 - prince of light // blinded by aspeect and destroys it. doesnt investigate his toxic tendencies n continues to destroy good things. wants to be dumb and irrelevant. withholding so much info.  knows how shit works n tells no one. refuses to learn from his actions
+	- Uses Light (relevance, knowledge, fortune, ambition) to destroy it for himself and others. He is overwhelmed by knowledge and relevance -- his narrative relevance (ruining josie's life, knowing about unreality) and interpersonal relevance, namely the way he hurts people and their lives. 
+	- Also have seen light associated w/ status/prestige
+	- Princes are on a path of spiral + self-destruction; and self-destruction = aspect-destruction
+	- He wants to be looked up to, to be important, to have the attention on him, but only in the right ways, the ways to keep him safe from his actual importance/relevance
+	- tormented by what he does not know about himself
+	- does not learn (gain knowledge) from his actions
+	- By destroying Light, creates Void: secrets, nothingness, darkness. Actively goes out of his way to obfuscate information that could be harmful to him, his irrelevance, or his status; his knowledge leads him to know that he is a bad person, thus preventing him from learning.
+	- Void is very understated, very in the background; Light is grand, dramatic. Eli uses dramatics to destroy knowledge/relevance.
+	- Also associated w/ fortune -- destroys other peoples' luck through creating secrets, eg solving puzzles and thus not helpign others
+	- Wants to be dumb and irrelevant, withholds important info, knows how shit works n tells no one
 - prince of mind??
 hunter: time or blood or life
 - mage of time: knows deeply from experience and can suffer from time; death, endings,  movement, time passing. pretty cut and dry no?
