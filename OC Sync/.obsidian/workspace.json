@@ -130,9 +130,21 @@
               "icon": "lucide-file",
               "title": "OC Hypotheticals"
             }
+          },
+          {
+            "id": "957092e06a9501ac",
+            "type": "leaf",
+            "state": {
+              "type": "release-notes",
+              "state": {
+                "currentVersion": "1.11.7"
+              },
+              "icon": "lucide-book-up",
+              "title": "Release Notes 1.11.7"
+            }
           }
         ],
-        "currentTab": 8
+        "currentTab": 9
       }
     ],
     "direction": "vertical"
@@ -305,7 +317,7 @@
       "obsidian-git:Open Git source control": false
     }
   },
-  "active": "1ed8bbf0806d87e9",
+  "active": "957092e06a9501ac",
   "lastOpenFiles": [
     "OCs/eli needs (but does not yet have).md",
     "OC Hypotheticals.md",
