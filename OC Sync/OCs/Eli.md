@@ -16,3 +16,10 @@ eli would prob interact w unraelity rly physically. like punching and shit cuz h
 # 2/3/2026
 
 isn't it interesting that [[Fiona]] and Eli are diametrically opposed in terms of truth/knowledge? like, [[fiona]] wants to find out EVERYTHING about herself while eli is trying his best to shut everything about himself OUT. theres something there. light and void. 
+
+---
+
+
+2/4/26
+
+big reason why his fam moved 2 Pennsylvania was bc his oldwst brother got into upenn
