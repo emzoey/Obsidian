@@ -135,12 +135,14 @@
             "id": "957092e06a9501ac",
             "type": "leaf",
             "state": {
-              "type": "release-notes",
+              "type": "markdown",
               "state": {
-                "currentVersion": "1.11.7"
+                "file": "OC Hypotheticals.md",
+                "mode": "source",
+                "source": false
               },
-              "icon": "lucide-book-up",
-              "title": "Release Notes 1.11.7"
+              "icon": "lucide-file",
+              "title": "OC Hypotheticals"
             }
           }
         ],
@@ -319,8 +321,9 @@
   },
   "active": "957092e06a9501ac",
   "lastOpenFiles": [
-    "OCs/Game, World.md",
+    "OCs Recap (pre 2026).md",
     "OC Hypotheticals.md",
+    "OCs/Game, World.md",
     "OCs/Fiona.md",
     "josies.md",
     "OCs/Eli.md",
@@ -328,7 +331,6 @@
     "OCs/Josie.md",
     "OCs/Kiv.md",
     "conflict-files-obsidian-git.md",
-    "OCs Recap (pre 2026).md",
     "Untitled.md",
     "Personal Universe.md",
     "Welcome - GitTorial.md",
