@@ -1,0 +1,6 @@
+oct 16 2020
+
+- seer of doom highblood who knos nearly everythin das ab 2 happen and has sumb of a god complex over the others. theyre able 2 see all the deaths/downfalls/conclusion of da game and r tasked w makin sure those things happen. morally gray questionable antag, sum like calder. cant handle seein all da death n destruction thats to come so the god attitude is how they cope. they eventually grow and turn to detcon to try and repair the timeline. they make a hesitant alliance cus neither of em like each other very much. this was the only thing the seer did not see, as it was a vision of hope. they're the driving force making everything bad happen, although they believe it's inevitable. trolltag is ___Omniscience (clairvoyantOmniscience?). my ordinary life song. maybe they're a famous fortune teller and is da witch girl idea i had? appears sane at first but really isnt. if they wear an eyepatch its bc they gouged their own eye out in an attempt to rid themselves of the visions of doom. the eye they gouged out was like a little diamond pupil. uses a staff/cane/wizard wand type thing. whenever people get their fortune told she just leads them to their death (like if they drown she tells them to go to the lake).  might kill herself? sea snake lusus? mortel? mirtyu? prothia (prophet + pythia)? voyana? oracle sibyl siren pythia
+
+---
+
