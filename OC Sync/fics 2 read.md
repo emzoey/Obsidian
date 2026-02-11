@@ -1,0 +1,8 @@
+- https://archiveofourown.org/works/12835047
+- https://archiveofourown.org/collections/Dirkjakebigbang/works/28718544 
+- https://archiveofourown.org/works/18951613/chapters/44997031
+- https://archiveofourown.org/works/16742854/chapters/39276733
+- https://archiveofourown.org/works/40127721?view_adult=true
+- https://archiveofourown.org/works/36981250
+- https://archiveofourown.org/works/39426570
+- https://archiveofourown.org/works/39718080/chapters/99435021
