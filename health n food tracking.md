@@ -10,3 +10,10 @@ EATEN TODAY:
 - spanakopita 2 slices
 - mandarin orange 
 - egg sandwich - ciabatta, egg, salt,  cream cheese
+
+
+
+going to josh tree
+metallic taste, jaw pain after exertion
+flu shot?
+blood sugar 
