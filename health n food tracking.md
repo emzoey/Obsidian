@@ -17,3 +17,11 @@ going to josh tree
 metallic taste, jaw pain after exertion
 flu shot?
 blood sugar 
+
+
+bp 111/65
+
+little company of mary torrance
+cedars torrance
+bring back stool sample today or tomorrow
+email w the ok for josh tree
