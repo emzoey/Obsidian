@@ -9,7 +9,12 @@ qdoba bowl w steak cheese lettuce peppers guac sour cream
 - hooks?
 - broc
 - potatoes
+- kale
 
 yowling then going to littwe box around 5am
 hiding
 leaked pee onto bed
+
+
+# 2/20
+- 9am: sliced apple, kale shallot garlic egg cream cheese bagel, OJ, ginger peach green tea
