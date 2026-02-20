@@ -9,3 +9,7 @@ qdoba bowl w steak cheese lettuce peppers guac sour cream
 - hooks?
 - broc
 - potatoes
+
+yowling then going to littwe box around 5am
+hiding
+leaked pee onto bed
