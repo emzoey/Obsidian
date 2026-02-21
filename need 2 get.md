@@ -11,6 +11,8 @@ qdoba bowl w steak cheese lettuce peppers guac sour cream
 - potatoes
 - kale
 - stuff to pit up board 
+- apples
+- liquid iv
 
 yowling then going to littwe box around 5am
 hiding
