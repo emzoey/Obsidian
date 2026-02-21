@@ -32,3 +32,6 @@ leaked pee onto bed
 - 9am: sliced apple, kale shallot garlic egg cream cheese bagel, OJ, ginger peach green tea
 - 3pm: ritz pb cracker package
 - 4:45pm: macky cheese n kale n cookie
+- 7pm: peach green tea boba
+- 8pm: choc chip cookie
+- 9:30pm: (sketti, green beans, hawaiian roll) x 2, cookie
