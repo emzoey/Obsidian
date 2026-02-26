@@ -79,3 +79,10 @@ prince of light: is tormented by knowledge, luck, and ambition; destroys knowled
 someone who knows  lotta things they dont want to and escape unscatched, reach for ambitions that are destroying them, purposefully obsfucate/skew others' luck, access to knowledge
 is tormented by their relevance and seeks to destroy it / is destroyed by their relevance, knowledge,  luck, ambition; & destroys it in others 
 
+# THE FINAL HOMESTUCK
+
+Josie: Page of Rage
+Hunter: Mage of Time
+Kiv: Bard of Blood
+Eli: Prince of Light
+Fiona: Witch of Heart
