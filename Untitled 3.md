@@ -8,3 +8,5 @@ i, ah. jake slides forward, so non subtly pressubg their crotches together  -- d
 may i?
 subtle as possible,  dirk "adjusts to get comfortable" because his dick is itching for any sort of reception here and dirk is depraved,  exploitative,  and shimmies against jake again. the feeling settles and coils again and wraps itself against his stiff cock and dirk has no choice but to breathe out. "fuck it."
 he lets jake kiss him. its far more surface than hed like and is terribly dry, but warm and solid in the way a hug is solid.
+
+jake loves it, seeing dirk so affected. watching that crumbling fight against his better judgment and deeing dirk, some platonjc ideal marble statue, come undone by his hands? jesus its buzzing off him in waves, only emboldening jake more.
