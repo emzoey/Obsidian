@@ -146,9 +146,23 @@
               "icon": "lucide-file",
               "title": "need 2 get"
             }
+          },
+          {
+            "id": "9c0fc782abb0af2e",
+            "type": "leaf",
+            "state": {
+              "type": "markdown",
+              "state": {
+                "file": "Untitled 3.md",
+                "mode": "source",
+                "source": false
+              },
+              "icon": "lucide-file",
+              "title": "Untitled 3"
+            }
           }
         ],
-        "currentTab": 9
+        "currentTab": 10
       }
     ],
     "direction": "vertical"
@@ -239,7 +253,7 @@
         "state": {
           "type": "backlink",
           "state": {
-            "file": "need 2 get.md",
+            "file": "Untitled 3.md",
             "collapseAll": false,
             "extraContext": false,
             "sortOrder": "alphabetical",
@@ -295,10 +309,11 @@
       "bases:Create new base": false
     }
   },
-  "active": "2e69913241bff36b",
+  "active": "9c0fc782abb0af2e",
   "lastOpenFiles": [
-    "Untitled 2.md",
     "need 2 get.md",
+    "Untitled 3.md",
+    "Untitled 2.md",
     "health n food tracking.md",
     "OC Sync/fics 2 read.md",
     "OC Sync/OC Hypotheticals.md",
@@ -322,7 +337,6 @@
     "OC Sync/OCs/Kiv.md",
     "OC Sync/OCs/Josie.md",
     "OC Sync/OCs/Game/figment encounter writing.md",
-    "README.md",
     "OC Sync/ANCIENT ARCHIVE/TABULA RASA",
     "OC Sync/ANCIENT ARCHIVE",
     "OC Sync/OCs/Game",
