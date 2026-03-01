@@ -153,7 +153,21 @@
             "state": {
               "type": "markdown",
               "state": {
-                "file": "Untitled 3.md",
+                "file": "OC Sync/Untitled 3.md",
+                "mode": "source",
+                "source": false
+              },
+              "icon": "lucide-file",
+              "title": "Untitled 3"
+            }
+          },
+          {
+            "id": "c231695d47afa0cd",
+            "type": "leaf",
+            "state": {
+              "type": "markdown",
+              "state": {
+                "file": "OC Sync/Untitled 3.md",
                 "mode": "source",
                 "source": false
               },
@@ -162,7 +176,7 @@
             }
           }
         ],
-        "currentTab": 10
+        "currentTab": 11
       }
     ],
     "direction": "vertical"
@@ -253,7 +267,7 @@
         "state": {
           "type": "backlink",
           "state": {
-            "file": "Untitled 3.md",
+            "file": "health n food tracking.md",
             "collapseAll": false,
             "extraContext": false,
             "sortOrder": "alphabetical",
@@ -309,12 +323,13 @@
       "bases:Create new base": false
     }
   },
-  "active": "9c0fc782abb0af2e",
+  "active": "c231695d47afa0cd",
   "lastOpenFiles": [
-    "need 2 get.md",
-    "Untitled 3.md",
-    "Untitled 2.md",
     "health n food tracking.md",
+    "OC Sync/Untitled 3.md",
+    "ok.md",
+    "need 2 get.md",
+    "Untitled 2.md",
     "OC Sync/fics 2 read.md",
     "OC Sync/OC Hypotheticals.md",
     "would you be quiet im playing a game of cuticle pick n peel.md",
@@ -336,7 +351,6 @@
     "OC Sync/Welcome - GitTorial.md",
     "OC Sync/OCs/Kiv.md",
     "OC Sync/OCs/Josie.md",
-    "OC Sync/OCs/Game/figment encounter writing.md",
     "OC Sync/ANCIENT ARCHIVE/TABULA RASA",
     "OC Sync/ANCIENT ARCHIVE",
     "OC Sync/OCs/Game",

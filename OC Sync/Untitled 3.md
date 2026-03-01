@@ -10,3 +10,9 @@ subtle as possible,  dirk "adjusts to get comfortable" because his dick is itchi
 he lets jake kiss him. its far more surface than hed like and is terribly dry, but warm and solid in the way a hug is solid.
 
 jake loves it, seeing dirk so affected. watching that crumbling fight against his better judgment and deeing dirk, some platonjc ideal marble statue, come undone by his hands? jesus its buzzing off him in waves, only emboldening jake more.
+
+
+
+im gonna straightbreak jake 
+
+jake likes affecting dirk bc its like wow i actually have some sort of tangible effect on people he he
