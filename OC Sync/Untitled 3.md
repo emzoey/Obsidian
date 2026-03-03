@@ -69,3 +69,10 @@ sigh!
 well for one he seems quiet at a glance but talks so much 
 so dont be intimidated! he is really just a mushy goofball
 Ah yes just like my own strider. Blathrring on and on.
+
+
+jane goes ahead and is trying to investigate what happened. ends up speaking w rose who is similarly doing that. 
+I did happen to run into Rose, who happened to be looking at the very same clues I was! She was helpful in some respects, if not sometimes darn infuriating! Like a certain Strider I know, hoo hoo.
+and none of this leaves this chat you got that buster?
+
+Now if youll excuse me i think its nigh time to go curl up like a dying spider.
