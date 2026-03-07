@@ -1,0 +1,1 @@
+afyer session driving home: stinging/burning/tingling sensation on the inside of my butt on the back somewhat leftish side
