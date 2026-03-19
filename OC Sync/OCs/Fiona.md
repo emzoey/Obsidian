@@ -255,3 +255,14 @@ isn't it interesting that Fiona and [[Eli]] are diametrically opposed in terms o
 # 3/18/2026
 
 at some point for the plot fionas gotta be like Josie. Josie u gota kill me just trust me. Kill me. 
+https://www.youtube.com/watch?v=ReL6DPr4AG4 
+
+there is something ehre about like, fiona is being submerged and melded with all these different identities and experiences and perceptions Every Single Time she cuts a part of her self off or kills herself or what have you in order to inspect herself.
+
+meanwhile [[kiv]]...we DID have the idea that their mental self is just. Rubble. static. spread out. or i mean thats where their physical self is i mean. thats how they show up in unreality WHATEVER. 
+
+any way my body having ass that has a crumbled mind VS my mind having ass that has a crumbled body 
+
+both of them are like Find My Pages. there are bits and pieces of me scattered in the wind
+
+i #love "women" that are overtaken by and killed by and part of and feel for the landscape
