@@ -266,3 +266,18 @@ any way my body having ass that has a crumbled mind VS my mind having ass that h
 both of them are like Find My Pages. there are bits and pieces of me scattered in the wind
 
 i #love "women" that are overtaken by and killed by and part of and feel for the landscape
+
+in order to inspect and analyze and puzzle herself out fiona is turning herself inside out, turning externally into the environment in order to look back in and down at herself
+
+
+WAIT
+IF FIONA IS TETHERED TO UNERALITY PHYSICALLY AND ITS LEAKING OUT
+NO WONDER SHE IS DISTORTED AND DECAYING
+NO WONDER SHE MAY BE SUFFERING
+HOW COULD THIS AFFECT HER??????
+unrality is losing its definition by leaking out into reality
+and therefore so may fiona 
+
+im getting the feeling that fiona real and the fiona that we know are not the same entity. like they had the same starting point but fiona veered off in some other direction and isnt really. Human anymore? maybe she lost some essential part of herself in the sea of unreality. maybe she is some figment of what fiona once really wanted to be
+fiona doesnt know this. shes like. wait. wait. i thought i was real. i thought i was the realest version of myself. MAYBE THIS IS WHY SHE KNOWS NOTHING ABOUT HER PAST???
+but then how would we save her?
