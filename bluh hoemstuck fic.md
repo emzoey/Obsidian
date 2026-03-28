@@ -16,3 +16,16 @@ karkat is prob freaking tf out and kanaya is nervous too
 everyone is exhausted.
 
 jake wants shit to return to normal. hopesplosion. evergone gets their rooms back
+
+
+
+none of their memories actually happened to them as far as this universes flow of time is concerned
+so they r def not human or like...alive?
+
+
+HOLY SHIT. AND I THOUGHT I WAS THE SELF FLAGELLATING ASSHOLE TO END ALL SELF FLAGELLATING ASSHOLES.
+GIVE IT UP FOR JAKE, EVERYONE. GLAD TO HAVE YOU, PAL.
+Karkat thag is nkt courteous at all! Jake ges ofc u can speak - jane
+WELL
+YOU'RE RIGHT. BUT I KNOW HOW THESE SHITSCAPADES END.
+WHATEVER! NOT MY SUBJUGGULSFOR, NOT MY HOWLBEASTS!
