@@ -16,3 +16,5 @@ He bunches a fist into a hard muscle and clocks Dirk in the side of the jaw hard
  JAKE: Come on strider  one of the oldest tricks in the book. Were brawling arent we?
  Jakes smile leaks like light through the cracks in his voice. He knows hes full of shit,  Dirk knows hes full of shit, isnt that what they want each other for? Its all very tonge in cheek.
  He wants dirk to hurt him. He wants dirk to apologize later.
+
+Dirks blood is wiped across his palm and nestled in the creases
