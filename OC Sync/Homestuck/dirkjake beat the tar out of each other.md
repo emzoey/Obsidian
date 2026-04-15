@@ -24,4 +24,7 @@ omg façade thr game but dirkjake
 
 what would it take to be dirks best friend? well prob intellectual discussions (even faux 13 yo ones), amping up/believing in his posturing as a controller and protector and knower, being willing to hear out his sillier interests 
 
-jake only knew his grandmothers touch in cloth, hair, and smell
+jake only knew his grandmothers touch in cloth, hair, and smell (the ashes)
+he didnt have her for long and she was never the clingy type
+
+first time he and dirk foight jake was good at it. he had training w dirkbot
