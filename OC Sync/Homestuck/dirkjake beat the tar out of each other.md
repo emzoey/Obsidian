@@ -18,3 +18,6 @@ He bunches a fist into a hard muscle and clocks Dirk in the side of the jaw hard
  He wants dirk to hurt him. He wants dirk to apologize later.
 
 Dirks blood is wiped across his palm and nestled in the creases
+
+
+omg façade thr game but dirkjake
