@@ -10,4 +10,6 @@ He bunches a fist into a hard muscle and clocks Dirk in the side of the jaw hard
  Now, this punch was hard enough it knocked Dirks shades ajar. So for a moment Jake gets to see his wet, animal, emotive eyes--
  and the force of both palms land like a body from stories up, Jake reeling backwards. 
  DIRK: What was that?
- He sounds frenzied,  upset. 
+ He sounds frenzied,  upset.  Have they not done this before, though? 
+ JAKE: Come on strider  one of the oldest tricks in the book. Were brawling arent we?
+ Jakes smile leaks like light through the cracks in his voice. He knows hes full of shit,  Dirk knows hes full of shit, isnt that what they want each other for? Its all very tonge in cheek.
