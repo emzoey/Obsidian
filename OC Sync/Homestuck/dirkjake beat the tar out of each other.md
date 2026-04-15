@@ -2,6 +2,8 @@ on earth c jake invites dirk to a good old fashioned scrum together with NO WEIR
 
 anyway durijg it jake thinks about the implicatjons
 
+jake is not doing well btw. 
+
 Seeing Dirk prone under him lights a spastic spark of delirium and anxiety licking at each other in the walls of his ribcage. He missed seeing this, the soft underbelly of Dirk, the pressure points and weak spots and all the ways he can effect Dirk Strider. So unreachable for so long, separated by time and steeled personality and diversions of his character but this -- heavy breathing, knocked off balance -- this is the real dirk, dirk strider the living breathing human.
 Jake feels it in the meat of his jaw. All at once he loves the hurt person before him and spits up bile at all the distance between, simultaneously,  and it crashes in a wave.
 He bunches a fist into a hard muscle and clocks Dirk in the side of the jaw hard enough to hear Dirk's teeth clack and feel, even momentarily, the give and breakage under his skin. 
