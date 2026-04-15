@@ -21,3 +21,5 @@ Dirks blood is wiped across his palm and nestled in the creases
 
 
 omg façade thr game but dirkjake
+
+what would it take to be dirks best friend? well prob intellectual discussions (even faux 13 yo ones), amping up/believing in his posturing as a controller and protector and knower, being willing to hear out his sillier interests 
