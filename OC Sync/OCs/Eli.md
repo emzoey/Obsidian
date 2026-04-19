@@ -23,3 +23,16 @@ isn't it interesting that [[Fiona]] and Eli are diametrically opposed in terms o
 2/4/26
 
 big reason why his fam moved 2 Pennsylvania was bc his oldwst brother got into upenn
+
+
+---
+
+4/18
+
+hey nothign new here i just love eli so much. i love eli so much. dude if only he could know about brockhampton...it is years to come though.
+
+he feels like someone i know
+
+like one of the boys in middle school eg kav that i liked a lot but they did some bad things and i hope they are doing better now
+
+i do think he becomes much more accepting at the very least after unreality. like how can you still be superficial/shallow and wrinkle your nose at weird ppl and art after that?
