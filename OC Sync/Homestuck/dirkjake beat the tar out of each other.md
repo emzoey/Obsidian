@@ -28,3 +28,19 @@ jake only knew his grandmothers touch in cloth, hair, and smell (the ashes)
 he didnt have her for long and she was never the clingy type
 
 first time he and dirk foight jake was good at it. he had training w dirkbot
+
+
+
+presentarion tomorrow
+meteors tonight
+screenplay 
+play play fridy
+
+mom tomorrow
+
+no hw tmrw if we get up late
+
+one day for play
+maybe start scwr on thurs
+
+
