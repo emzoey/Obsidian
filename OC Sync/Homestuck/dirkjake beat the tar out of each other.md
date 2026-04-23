@@ -44,3 +44,4 @@ one day for play
 maybe start scwr on thurs
 
 
+599 galaxy s23 torrance
