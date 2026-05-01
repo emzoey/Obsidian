@@ -277,12 +277,12 @@
             "state": {
               "type": "markdown",
               "state": {
-                "file": "OCs/Eli.md",
+                "file": "OC Hypotheticals.md",
                 "mode": "source",
                 "source": false
               },
               "icon": "lucide-file",
-              "title": "Eli"
+              "title": "OC Hypotheticals"
             }
           }
         ],
@@ -461,6 +461,7 @@
   },
   "active": "45efb8e01183124d",
   "lastOpenFiles": [
+    "OCs/Eli.md",
     "OCs/eli needs (but does not yet have).md",
     "OCs/Kiv.md",
     "Homestuck/dirkjake beat the tar out of each other.md",
@@ -486,7 +487,6 @@
     "OCs Recap (pre 2026).md",
     "OCs/Game, World.md",
     "josies.md",
-    "OCs/Eli.md",
     "conflict-files-obsidian-git.md",
     "Personal Universe.md",
     "Screenshot 2026-01-02 175842.png",

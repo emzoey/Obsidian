@@ -86,3 +86,10 @@ Hunter: Mage of Time
 Kiv: Bard of Blood
 Eli: Prince of Light
 Fiona: Witch of Heart
+
+
+
+# 4/29/26 - DANGANRONPA
+The Pjeggening (its been cancelled..)
+HUNTER - Ultimate Archivist
+KIV - Ultimate Survivor/Explorer
