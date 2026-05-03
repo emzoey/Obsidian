@@ -18,3 +18,6 @@ NEW WORKS FESTIVAL
 get yourself a little notebook to keep arpund flr writing ideas eg
 teeth vs concrete, ab mom and homelessness and disability and being herded like sheep
 how you feel theres another life where u can be that biy but there isnt and its scary
+
+
+august is kinda intense/ominous like aradia
