@@ -21,3 +21,10 @@ how you feel theres another life where u can be that biy but there isnt and its 
 
 
 august is kinda intense/ominous like aradia
+
+change oral exam date
+
+
+turn in
+
+
