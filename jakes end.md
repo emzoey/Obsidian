@@ -29,3 +29,7 @@ change oral exam date
 turn in
 
 
+mastermind as ultimate researcher which wojld explain how she got all their talents and coordinated everything. or maybe a PAST ultimate reseacher who, years later, has some sort of complex that makes her do this become ur ultimate self killing game
+ theologian knows her bc she has helped out w the research on projects
+
+also theologian as antag? anthony as ch1 buddy to mc?
