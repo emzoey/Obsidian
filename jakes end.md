@@ -7,6 +7,7 @@ splinters jake
 
 dirk remembees jake too
 
+800 274 7767 UM dept
 
 mark being a really codependent slash toxic friend to jett, who in that moment is almlst getting punished for his happy go lucky and friendly spirit
 helmet suicide being a big big bjg fuck you to jett like jesus man, losing his helmet along the way
