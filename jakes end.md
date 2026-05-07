@@ -33,3 +33,10 @@ mastermind as ultimate researcher which wojld explain how she got all their tale
  theologian knows her bc she has helped out w the research on projects
 
 also theologian as antag? anthony as ch1 buddy to mc?
+
+
+
+i booted up tomodachi life and there were only 3 miis on the island inclhding the knight.  2 had a weird thing above their heads while the other had like a black and white scribble and was running away from a bug or sometbing? and i got an email on my scbool acct that was loke tomodachi local "drug" distribution or something an i looked it up and apparently a bunch of ppl were getting it. and they said somegbinv about touching the miis? so i tried to touch them and it electrocuted me and said like if i touch another mii i will die essentiallg. the other action i could do involved uhhh food? where i fed them or sometning but it made their hunger go all the way down and they passed out
+and i dont remember how this happened but in some intersction it took off the miis hair and underneath was flat with like three circular lights? maybe thats how i am getting electrocuted? 
+
+but ywa it was apparently the miis that had sent the most stuff or whatever so i was stuck to only having 3 until i finished this segment eg like a tutorial lind of thing
