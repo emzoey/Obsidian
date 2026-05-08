@@ -40,3 +40,5 @@ i booted up tomodachi life and there were only 3 miis on the island inclhding th
 and i dont remember how this happened but in some intersction it took off the miis hair and underneath was flat with like three circular lights? maybe thats how i am getting electrocuted? 
 
 but ywa it was apparently the miis that had sent the most stuff or whatever so i was stuck to only having 3 until i finished this segment eg like a tutorial lind of thing
+
+send proof visit
