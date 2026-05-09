@@ -47,3 +47,10 @@ send proof visit
 korean girl who is ult crime scene illustrator or autopsy illustrator or missing persons re creator etc....really gifted artist forced into the role by police parentand eventually accepted it
 
 ultimate falconer
+
+august has a big book bag on her covered in religious stickers and philosophy jokes
+
+august tries to pull a komaeda ass killing self stunt by killijg someone then herself...but she FAILS to kill herself. and then she is essentially on trial for murder and must look her classmates in the face knowing her sacrifice failed. see: https://www.tumblr.com/gnomeontape/810201144945180672?source=share
+ig shw tries to escape death tho now for whatever reaso??
+
+having her as an antag would be fascinating
