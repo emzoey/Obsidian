@@ -42,3 +42,8 @@ and i dont remember how this happened but in some intersction it took off the mi
 but ywa it was apparently the miis that had sent the most stuff or whatever so i was stuck to only having 3 until i finished this segment eg like a tutorial lind of thing
 
 send proof visit
+
+
+korean girl who is ult crime scene illustrator or autopsy illustrator or missing persons re creator etc....really gifted artist forced into the role by police parentand eventually accepted it
+
+ultimate falconer
