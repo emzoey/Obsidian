@@ -58,3 +58,5 @@ having her as an antag would be fascinating
 unlike having one main support like kyoko in danganronpa, would be interesting for all chars to play that role at some point during diff investigations
 
 some1 whi already has earned ult title but wants to find their actual self, lost interest init?
+
+interesting death internal bleeding
