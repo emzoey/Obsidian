@@ -60,3 +60,4 @@ unlike having one main support like kyoko in danganronpa, would be interesting f
 some1 whi already has earned ult title but wants to find their actual self, lost interest init?
 
 interesting death internal bleeding
+
