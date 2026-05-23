@@ -1,3 +1,4 @@
 - corn
 - peas
 - pesto
+- cheese stick
