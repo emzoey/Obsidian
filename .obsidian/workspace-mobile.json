@@ -321,12 +321,12 @@
             "state": {
               "type": "markdown",
               "state": {
-                "file": "decisions.md",
+                "file": "Untitled 3.md",
                 "mode": "source",
                 "source": false
               },
               "icon": "lucide-file",
-              "title": "decisions"
+              "title": "Untitled 3"
             }
           }
         ],
@@ -479,8 +479,8 @@
   },
   "active": "847cdd8090c3bae3",
   "lastOpenFiles": [
-    "Untitled 3.md",
     "decisions.md",
+    "Untitled 3.md",
     "jakes end.md",
     "grocery.md",
     "hd.md",

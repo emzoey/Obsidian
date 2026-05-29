@@ -19,3 +19,5 @@ BUT you can mak it happen immediately,  sidestep all the trials and tribulations
 
 anotjer potential voting option: kick someone out slash kill them.
 if everyone but one unanimously agrees to vote to leave, couldnt you just...kill the dissenter, then all unanimously vote the next time around?
+
+arshan doesnt like being seen in a non curated way as in hes socially awkward and private and really values his personal life
