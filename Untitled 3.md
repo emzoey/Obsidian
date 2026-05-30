@@ -12,6 +12,7 @@ bananas
 choc? for smoothie 
 grapes
 acai
+strawb jam/puree
 
 
 noemally voting takes place aftee ppl manage to make their way to the voting room.
