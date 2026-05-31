@@ -13,6 +13,9 @@ choc? for smoothie
 grapes
 acai
 strawb jam/puree
+goat cheese
+oj
+lemonade
 
 
 noemally voting takes place aftee ppl manage to make their way to the voting room.
