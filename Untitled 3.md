@@ -22,3 +22,9 @@ anotjer potential voting option: kick someone out slash kill them.
 if everyone but one unanimously agrees to vote to leave, couldnt you just...kill the dissenter, then all unanimously vote the next time around?
 
 arshan doesnt like being seen in a non curated way as in hes socially awkward and private and really values his personal life
+
+i will stretch your skin into my sky
+your arms extended in the center,
+keystone,
+knelt like overtaken by arrows you protect me
+blood dribbles
