@@ -16,6 +16,9 @@ strawb jam/puree
 goat cheese
 oj
 lemonade
+tums
+
+i am attracted to joy and self completion 
 
 
 noemally voting takes place aftee ppl manage to make their way to the voting room.
