@@ -69,6 +69,7 @@ sigh!
 well for one he seems quiet at a glance but talks so much 
 so dont be intimidated! he is really just a mushy goofball
 Ah yes just like my own strider. Blathrring on and on.
+Or erm ahem my UNIVERSES strider. 
 
 
 jane goes ahead and is trying to investigate what happened. ends up speaking w rose who is similarly doing that. 
