@@ -6,3 +6,10 @@
 - laptop
 - ask for cleaning wipes
 - towel
+
+
+august void?
+arshan rage or hope
+mateo time
+cole space
+gauthier heart?
