@@ -23,3 +23,10 @@ email kimn
 cornstarch???
 
 thrift a fanny pack for jett?
+
+make a list of shit we needa buy online, eg
+neck fan
+window tint/plastic sheet
+clear bag??
+
+old leggings 4 neck and wrist coverage
