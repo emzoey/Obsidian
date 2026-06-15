@@ -30,3 +30,10 @@ window tint/plastic sheet
 clear bag??
 
 old leggings 4 neck and wrist coverage
+
+i will never have the life i want because i will never be brave or gracious enough to accept good people into my life or have fun
+eg dnd or improv
+i get very frustrated when j dont immediately understand rules, very sour
+i feel sad  because i feel like i have betrayed myself by not following thru on schedule, eating badly, being paralyzed
+
+peep show
