@@ -30,3 +30,7 @@ BTW ANKTJER THING WE COULD DO KS GORILLAZ ARTSTYLE PREACFICE
 have u told her u kove her
 are y kidding? thats like firing first in a duel..if you miss you're fucked!
 peep show s3e5
+
+on letting go circa survive -> dirk and dave
+suitcase circa survive
+blood drom a stonw circa survice
