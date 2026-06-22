@@ -25,3 +25,8 @@ Just 1 More, the call letters of my station
 
 
 BTW ANKTJER THING WE COULD DO KS GORILLAZ ARTSTYLE PREACFICE
+
+
+have u told her u kove her
+are y kidding? thats like firing first in a duel..if you miss you're fucked!
+peep show s3e5
