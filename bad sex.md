@@ -34,3 +34,6 @@ peep show s3e5
 on letting go circa survive -> dirk and dave
 suitcase circa survive
 blood drom a stonw circa survice
+
+
+they dated flr a WHILE without a  first kiss bc jake wanted it to b the perfect moment and kept putting it off. like literally told dirk that to his face when it came up. he wanted a movie kiss like just saved the girl kiss
