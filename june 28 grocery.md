@@ -18,4 +18,6 @@
 - beets
 - sour cream
 - dill
+- shredded cabbage 
+- tomato
 - 
