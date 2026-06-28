@@ -16,4 +16,6 @@
 - duct tape
 - ashe potatoes
 - beets
+- sour cream
+- dill
 - 
