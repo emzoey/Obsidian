@@ -7,3 +7,9 @@
 - crackers
 - peas
 - corn
+- oj
+- 14oz sweetened condensed milk
+- instant vanilla pudding
+- 3 cups heavy cream
+- vanilla wafers
+- whip cream
