@@ -47,3 +47,6 @@ the thing is 13.5in long. look at hetts helmet and how its 3 parts. each 4.5in i
 
 unreality is essentially the meaning we ascribe to things.. a world of signs
 everything our eyes see is an illusion constructed by our brains
+
+fuuck
+.. god tiering / darkworlding selves over time. IDK.
