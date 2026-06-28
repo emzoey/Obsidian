@@ -59,3 +59,5 @@ kiv is playing da genocide route
 
 the kiv we know is kinda like kivs orotectir
 we know their realworld self thru internet poste
+
+fiona eli n josie....are buddies
