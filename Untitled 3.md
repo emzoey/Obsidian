@@ -37,3 +37,10 @@ blood dribbles
 
 
 witch of breath with water powers cuz manipulsting air to create water/condensation Yay
+
+6 3/8
+
+12.75
+
+lookit helmet
+the thing is 13.5in long. look at hetts helmet and how its 3 parts. each 4.5in in length.
