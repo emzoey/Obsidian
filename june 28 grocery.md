@@ -21,3 +21,4 @@
 - shredded cabbage 
 - tomato
 - carrots
+- 2 onions yellow 
