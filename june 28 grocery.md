@@ -34,3 +34,4 @@ bric foundation
 volunteer at LBX
 
 ask frankie ab resume
+fill out linkedin
