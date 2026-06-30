@@ -39,3 +39,6 @@ fill out linkedin
 html and css portfolio site
 
 wb will table at lbx
+
+what r ur hours like?
+how much control do y have over which projects ur staffed on?
