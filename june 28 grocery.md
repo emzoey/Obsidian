@@ -36,4 +36,4 @@ volunteer at LBX
 ask frankie ab resume
 fill out linkedin
 
-html and css portfo
+html and css portfolio site
