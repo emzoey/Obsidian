@@ -42,3 +42,7 @@ wb will table at lbx
 
 what r ur hours like?
 how much control do y have over which projects ur staffed on?
+maybe pitch terminal lucidity and ask ab resume
+
+
+THE LAND IS A STARVING ANIMAL
