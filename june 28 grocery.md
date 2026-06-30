@@ -37,3 +37,5 @@ ask frankie ab resume
 fill out linkedin
 
 html and css portfolio site
+
+wb will table at lbx
