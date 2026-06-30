@@ -47,6 +47,7 @@ i dint rly have samples
 maybe pitch terminal lucidity and ask ab resume
 schedule meet w michelle
 
+lbx volunteer 
 
 
 THE LAND IS A STARVING ANIMAL
