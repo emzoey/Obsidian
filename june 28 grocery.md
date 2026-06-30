@@ -32,3 +32,5 @@ kiv asriel god of huperdearh
 
 bric foundation
 volunteer at LBX
+
+ask frankie ab resume
