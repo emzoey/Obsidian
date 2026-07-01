@@ -58,3 +58,4 @@ THE LAND IS A STARVING ANIMAL
 muzz width 1.5in
 top snout 1in (2)
 sidesnout 2in (1&3)
+3.75in tall muzzlehalves (4&5)
