@@ -61,3 +61,9 @@ sidesnout 2in (1&3)
 3.75in tall muzzlehalves (4&5)
 
 HEY GET THE TREECAKE
+
+hunter love
+josie creativity
+kiv perseverance 
+fiona loyalty
+eli 
