@@ -63,7 +63,7 @@ sidesnout 2in (1&3)
 HEY GET THE TREECAKE
 
 hunter love
-josie creativity
+josie creativity/imagination 
 kiv perseverance 
 fiona loyalty
-eli 
+eli freedom?? knowledge?
