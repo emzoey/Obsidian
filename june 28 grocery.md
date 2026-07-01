@@ -40,7 +40,7 @@ html and css portfolio site
 
 wb will table at lbx
 
-what r ur hours like?
+what r ur hours like? do U have a life? crunch culture?
 how much control do y have over which projects ur staffed on?
 fear of potential
 meant so much to see trans person doing what i wanna do
