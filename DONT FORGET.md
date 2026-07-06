@@ -14,7 +14,12 @@ and that cheese can be licked from fingertips
 and every color of word and inflection
 and i teach it a name
 
-and all at once theres this i escapable need to 
-come in together again
+and all at once again theres the i escapable need to 
+come in together
 from whence we came:
 one warm body against another
+
+two electrical beings, one socket
+
+we  blink at each other slowly
+and that, the meaning of, we both know
