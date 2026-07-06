@@ -23,3 +23,6 @@ two electrical beings, one socket
 
 we  blink at each other slowly
 and that, the meaning of, we both know
+i love you
+youre safe here, my angel
+my fluffy lump
