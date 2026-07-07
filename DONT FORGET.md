@@ -26,3 +26,5 @@ and that, the meaning of, we both know
 i love you
 youre safe here, my angel
 one/my warm, fluffy lump
+
+fi "i dont think youd like the real me" lastname
