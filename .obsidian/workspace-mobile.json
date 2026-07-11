@@ -419,12 +419,12 @@
             "state": {
               "type": "markdown",
               "state": {
-                "file": "we can doooo.md",
+                "file": "bad sex.md",
                 "mode": "source",
                 "source": false
               },
               "icon": "lucide-file",
-              "title": "we can doooo"
+              "title": "bad sex"
             }
           }
         ],
@@ -456,7 +456,7 @@
         "state": {
           "type": "search",
           "state": {
-            "query": ".",
+            "query": "duel",
             "matchingCase": false,
             "explainSearch": false,
             "collapseAll": false,
@@ -507,7 +507,7 @@
         }
       }
     ],
-    "currentTab": 0
+    "currentTab": 1
   },
   "right": {
     "id": "6619beb38fef3176",
@@ -519,7 +519,7 @@
         "state": {
           "type": "backlink",
           "state": {
-            "file": "DONT FORGET.md",
+            "file": "bad sex.md",
             "collapseAll": false,
             "extraContext": false,
             "sortOrder": "alphabetical",
@@ -577,8 +577,8 @@
   },
   "active": "b830cada21e016f5",
   "lastOpenFiles": [
-    "bad sex.md",
     "we can doooo.md",
+    "bad sex.md",
     "decisions.md",
     "DONT FORGET.md",
     "june 28 grocery.md",
